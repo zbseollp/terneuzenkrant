@@ -11,8 +11,6 @@ Terneuzen is een stad die een breed scala aan internationale eetgelegenheden bie
 
 Redactie TerneuzenKrant5 oktober 2024
 
-![Azerbeidzjaanse keuken in Terneuzen: is het te vinden?](https://terneuzenkrant.nl/wp-content/uploads/2024/10/Azerbeidzjaanse-keuken-.jpeg)
-
 Terneuzen is een stad die een breed scala aan internationale eetgelegenheden biedt. Van lokale Zeeuwse specialiteiten tot exotische gerechten uit verre landen, er is veel te ontdekken voor de culinaire avonturier. Maar wat als je specifiek op zoek bent naar Azerbeidzjaans eten? In dit artikel kijken we of je in Terneuzen kunt genieten van de authentieke smaken uit Azerbeidzjan en wat de alternatieven zijn.
 
 ## **Azerbeidzjaans eten in Terneuzen: Bestaat het?**

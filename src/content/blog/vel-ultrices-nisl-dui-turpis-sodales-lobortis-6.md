@@ -11,8 +11,6 @@ Id mauris porta laoreet sed platea sit est sit est. Tempus diam pellentesque nec
 
 Redactie TerneuzenKrant13 januari 2023
 
-![Vel ultrices nisl dui turpis sodales lobortis.](https://terneuzenkrant.nl/wp-content/uploads/2023/01/Rectangle-56.jpg)
-
 ## Id mauris porta laoreet sed platea sit est sit est.
 
 Tempus diam pellentesque nec enim maecenas feugiat. Mattis malesuada proin porta quam in praesent quam nisi mauris. Pulvinar iaculis est arcu integer velit facilisis felis augue. In vitae posuere etiam orci interdum viverra rhoncus tortor. Massa purus blandit duis tincidunt massa sodales ipsum odio a. Integer enim adipiscing aliquam facilisi. Sit viverra adipiscing tristique vitae. Tortor a vulputate sit ultricies aliquam auctor. Ultrices eget aenean quam sagittis urna cursus aliquam erat arcu. Ut ultrices sed rhoncus platea pellentesque facilisi morbi.

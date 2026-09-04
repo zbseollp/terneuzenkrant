@@ -11,8 +11,6 @@ De gezondheidsmarkt is volop in beweging. Consumenten bestellen vaker online, re
 
 Redactie TerneuzenKrant13 juni 2026
 
-![Hoe UniPharma innoveert met robots, data en slimme processen](https://terneuzenkrant.nl/wp-content/uploads/2026/06/featured-2.jpg)
-
 De gezondheidsmarkt is volop in beweging. Consumenten bestellen vaker online, retailers verwachten snelle leveringen en het assortiment aan gezondheidsproducten blijft groeien. Voor [UniPharma](https://expertbase.nl/bedrijven/unipharma/) betekent dit dat de logistieke operatie steeds slimmer en nauwkeuriger moet worden. Met duizenden producten, ruim 2.000 klanten en een grote fulfilmenttak is efficiëntie geen luxe, maar een voorwaarde om kwaliteit te blijven leveren.
 
 Daarom heeft het bedrijf de afgelopen jaren stevig geïnvesteerd in automatisering en robotisering. Meer bestellingen verwerken met dezelfde betrouwbaarheid kan alleen als processen goed zijn ingericht en knelpunten tijdig worden opgelost.

@@ -3,23 +3,17 @@ title: "Dorpskerk van Leusden-Zuid: een historisch en cultureel monument"
 pubDate: "2025-10-24"
 date: "2025-10-24"
 slug: "dorpskerk-van-leusden-zuid"
-metaDescription: "Blog Dorpskerk van Leusden-Zuid: een historisch en cultureel monument De Dorpskerk van Leusden-Zuid, gelegen aan de Dodeweg, is een markant en historisch"
+metaDescription: "Dorpskerk van Leusden-Zuid: een historisch en cultureel monument De Dorpskerk van Leusden-Zuid, gelegen aan de Dodeweg, is een markant en historisch"
 ---
-Blog
-
 Dorpskerk van Leusden-Zuid: een historisch en cultureel monument De Dorpskerk van Leusden-Zuid, gelegen aan de Dodeweg, is een markant en historisch gebouw dat de rijke geschiedenis van de regio weers
 
 Redactie TerneuzenKrant24 oktober 2025
-
-![Dorpskerk van Leusden-Zuid: een historisch en cultureel monument](https://terneuzenkrant.nl/wp-content/uploads/2025/10/Kerk-Leusden-Zuid-1-scaled.jpeg)
 
 * oktober 24, 2025
 
 **De Dorpskerk van Leusden-Zuid, gelegen aan de Dodeweg, is een markant en historisch gebouw dat de rijke geschiedenis van de regio weerspiegelt. Gebouwd in 1828 ter vervanging van de kerk van Oud-Leusden, is deze waterstaatskerk een voorbeeld van de architectuur uit de vroege 19e eeuw. De kerk is een belangrijk herkenningspunt in het landschap van Leusden-Zuid en heeft een diepe betekenis voor de lokale gemeenschap.**
 
 ###
-
-![Foto van Duncan](https://terneuzenkrant.nl/wp-content/uploads/2025/01/Duncan-300x300.jpg)
 
 Duncan
 
@@ -34,8 +28,6 @@ De Dorpskerk is ontworpen in de stijl van de waterstaatsarchitectuur, een stromi
 Voor de inwoners van Leusden-Zuid is de Dorpskerk meer dan alleen een gebouw; het is een symbool van gemeenschap en continuïteit. De kerk fungeert niet alleen als plaats van eredienst, maar ook als centrum voor culturele en sociale activiteiten. Evenementen zoals concerten, markten en herdenkingen worden regelmatig georganiseerd, waardoor de kerk een levendig onderdeel is van het dagelijks leven.
 
 Bekijk [Leusden nieuws vandaag](https://leusdennieuwsvandaag.nl) voor een overzicht van actuele evenementen en activiteiten rondom de kerk. Een bezoek aan de Dorpskerk biedt inzicht in de lokale geschiedenis en de diverse culturele activiteiten die er plaatsvinden.
-
-![Kerk Leusden Zuid](https://terneuzenkrant.nl/wp-content/uploads/2025/10/Kerk-Leusden-Zuid-1024x768.jpeg)
 
 ## Toegankelijkheid en betrokkenheid
 

@@ -11,8 +11,6 @@ De woonkamer zonder banken trend draait om het loslaten van de traditionele vast
 
 Redactie TerneuzenKrant26 mei 2026
 
-![Woonkamer zonder banken trend: zo richt je een zithoek flexibel in](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-4.png)
-
 De woonkamer zonder banken trend draait om het loslaten van de traditionele vaste bankopstelling en het creëren van een flexibele leefruimte. In plaats van één grote zitplek wordt de ruimte opgebouwd uit losse elementen die je makkelijk kunt verplaatsen of aanpassen. Dit geeft niet alleen meer vrijheid in de indeling, maar zorgt ook voor een luchtiger en ruimtelijker gevoel in huis. Vooral in kleinere woningen of moderne interieurs zie je deze aanpak steeds vaker terug.
 
 ## Waarom de woonkamer zonder banken trend steeds populairder wordt
@@ -20,8 +18,6 @@ De woonkamer zonder banken trend draait om het loslaten van de traditionele vast
 De verschuiving naar een woonkamer zonder vaste bank komt vooral door veranderende woonwensen. Mensen wonen compacter, willen multifunctionele ruimtes en [zoeken](https://terneuzenkrant.nl/leen-bakker/) meer flexibiliteit in hun interieur. Een vaste bank neemt vaak veel ruimte in beslag en bepaalt direct de hele indeling van de kamer. Door die los te laten ontstaat er meer vrijheid om de ruimte anders in te richten, afhankelijk van het moment of de behoefte.
 
 Daarnaast speelt ook esthetiek een rol. Een open vloer met losse meubels oogt vaak rustiger en minder zwaar, vooral in combinatie met lichte kleuren en natuurlijke materialen.
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-5-1024x683.png)
 
 ## Alternatieven voor een traditionele bank
 
@@ -42,8 +38,6 @@ Door deze elementen te combineren ontstaat een speelse indeling die makkelijk aa
 De grootste uitdaging bij deze trend is het creëren van samenhang zonder vaste bank als middelpunt. Daarom is het belangrijk om eerst te bepalen waar de focus van de ruimte ligt, zoals een raam, televisie of centrale tafel. Van daaruit kun je verschillende kleine zithoeken opbouwen.
 
 Een vloerkleed helpt om een zone te definiëren, zodat de losse meubels toch als één geheel aanvoelen. Ook verlichting speelt een belangrijke rol, omdat meerdere lichtpunten de ruimte warmer en gezelliger maken dan één centrale lamp.
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-6-1024x683.png)
 
 ## Sfeer en stijl in een flexibele woonkamer
 

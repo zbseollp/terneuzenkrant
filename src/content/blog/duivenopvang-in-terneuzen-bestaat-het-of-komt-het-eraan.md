@@ -11,8 +11,6 @@ Veel mensen die te maken krijgen met gewonde of verdwaalde duiven vragen zich af
 
 Redactie TerneuzenKrant5 oktober 2024
 
-![Duivenopvang in Terneuzen: Bestaat het of komt het eraan?](https://terneuzenkrant.nl/wp-content/uploads/2024/10/duiven-opvang.webp)
-
 Veel mensen die te maken krijgen met gewonde of verdwaalde duiven vragen zich af of er een specifieke duivenopvang in Terneuzen bestaat. Duiven zijn overal in Nederland aanwezig, en het komt regelmatig voor dat een duif hulp nodig heeft. In dit artikel kijken we of er in Terneuzen een duivenopvang is en wat de toekomstmogelijkheden zijn voor zo’n opvang.
 
 ## **Is er momenteel een duivenopvang in Terneuzen?**

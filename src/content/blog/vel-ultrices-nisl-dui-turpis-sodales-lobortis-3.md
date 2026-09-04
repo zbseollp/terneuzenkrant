@@ -11,6 +11,4 @@ Welcome to WordPress. This is your first post. Edit or delete it, then start wri
 
 Redactie TerneuzenKrant13 januari 2023
 
-![Vel ultrices nisl dui turpis sodales lobortis.](https://terneuzenkrant.nl/wp-content/uploads/2022/12/Rectangle-36107.jpg)
-
 Welcome to WordPress. This is your first post. Edit or delete it, then start writing!

@@ -11,10 +11,6 @@ Leen Bakker is een toonaangevende woonwinkelketen in Nederland, bekend om zijn u
 
 Redactie TerneuzenKrant13 juli 2024
 
-![Leen Bakker Terneuzen | Bastion, Kennedylaan 92](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154154.png)
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154154.png)
-
 Leen Bakker is een toonaangevende woonwinkelketen in Nederland, bekend om zijn uitgebreide assortiment aan meubels, decoratie en woonaccessoires tegen betaalbare prijzen. Gelegen aan Kennedylaan 92 in Terneuzen, biedt Leen Bakker alles wat u nodig heeft om uw huis stijlvol en comfortabel in te richten. Van trendy meubels tot praktische opbergoplossingen, Leen Bakker Terneuzen heeft het allemaal.
 
 ## Producten en aanbiedingen bij Leen Bakker Terneuzen

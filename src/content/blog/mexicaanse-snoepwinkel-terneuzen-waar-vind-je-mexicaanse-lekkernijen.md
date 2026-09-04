@@ -11,8 +11,6 @@ Ben je op zoek naar Mexicaanse snoepjes in Terneuzen? Helaas is er op dit moment
 
 Redactie TerneuzenKrant5 oktober 2024
 
-![Mexicaanse snoepwinkel Terneuzen: waar vind je Mexicaanse lekkernijen?](https://terneuzenkrant.nl/wp-content/uploads/2024/10/mexicaanse-snoepwinkel.jpeg)
-
 Ben je op zoek naar Mexicaanse snoepjes in Terneuzen? Helaas is er op dit moment geen specifieke Mexicaanse snoepwinkel in Terneuzen te vinden. Maar dat betekent niet dat je geen heerlijke Mexicaanse lekkernijen kunt vinden! Er zijn verschillende internationale supermarkten in de omgeving die een selectie van Mexicaans snoep aanbieden. Denk aan tamarindesnoepjes, chili gummies en andere typische Mexicaanse zoetigheden.
 
 ## **Mexicaanse snoep online bestellen vanuit Terneuzen**

@@ -11,10 +11,6 @@ Texaco Axel is een betrouwbaar en gemakkelijk bereikbaar tankstation gelegen aan
 
 Redactie TerneuzenKrant13 juli 2024
 
-![Texaco Axel | Drieschouwen Zuid 2](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154458.png)
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154458.png)
-
 Texaco Axel is een betrouwbaar en gemakkelijk bereikbaar tankstation gelegen aan Drieschouwen Zuid 2 in Zuiddorpe, Nederland. Of u nu onderweg bent voor werk, vakantie of dagelijkse ritten, Texaco Axel biedt u een breed scala aan brandstoffen en handige diensten om uw reis zo soepel mogelijk te laten verlopen.
 
 ## Producten en diensten bij Texaco Axel

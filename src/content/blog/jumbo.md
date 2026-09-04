@@ -11,10 +11,6 @@ Jumbo is een van de grootste supermarktketens in Nederland, bekend om zijn uitge
 
 Redactie TerneuzenKrant13 juli 2024
 
-![Jumbo Terneuzen | Lorentzlaan 2](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154129.png)
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154129.png)
-
 Jumbo is een van de grootste supermarktketens in Nederland, bekend om zijn uitgebreide assortiment en klantvriendelijke service. Gelegen aan de Lorentzlaan 2 in Terneuzen, biedt Jumbo alles wat u nodig heeft voor uw dagelijkse boodschappen. Met ruime openingstijden en een breed scala aan producten is Jumbo Terneuzen de ideale plek om te winkelen.
 
 ## Producten en aanbiedingen bij Jumbo Terneuzen

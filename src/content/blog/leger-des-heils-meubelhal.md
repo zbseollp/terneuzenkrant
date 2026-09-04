@@ -11,10 +11,6 @@ Leger des Heils Meubelhal Terneuzen is een vertrouwde plek voor het vinden van b
 
 Redactie TerneuzenKrant13 juli 2024
 
-![Leger Des Heils meubelhal Terneuzen | Haarmangweg 2a](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154613.png)
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154613.png)
-
 Leger des Heils Meubelhal Terneuzen is een vertrouwde plek voor het vinden van betaalbare en tweedehands meubels van hoge kwaliteit. Gelegen aan Haarmanweg 2a in Terneuzen, biedt deze meubelhal een breed assortiment aan meubels en huisraad voor elk budget. Door te winkelen bij Leger des Heils Meubelhal ondersteunt u niet alleen uw eigen huisinrichting, maar ook de goede doelen en projecten van het Leger des Heils.
 
 ## Producten en aanbiedingen bij Leger des Heils Meubelhal Terneuzen

@@ -11,8 +11,6 @@ Een ergosofa comfortbank wordt steeds vaker gekozen door mensen die niet alleen 
 
 Redactie TerneuzenKrant26 mei 2026
 
-![Ergosofa comfortbank: wat het is en waarom het zo prettig zit](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-9.png)
-
 Een ergosofa comfortbank wordt steeds vaker gekozen door mensen die niet alleen een mooie bank willen, maar vooral goed en langdurig willen zitten zonder klachten. In tegenstelling tot een standaard bank is dit type sofa ontworpen met meer aandacht voor lichaamsondersteuning, zithouding en drukverdeling. Daardoor voelt het zitten vaak actiever en stabieler aan, wat vooral merkbaar is bij langer gebruik zoals tv-kijken, lezen of werken vanuit de woonkamer.
 
 ## Wat een ergosofa comfortbank anders maakt

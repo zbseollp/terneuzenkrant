@@ -11,8 +11,6 @@ Neotenic design is een interieurstijl die draait om organische vormen, afgeronde
 
 Redactie TerneuzenKrant26 mei 2026
 
-![Neotenic design toepassen in een modern interieur](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-7.png)
-
 Neotenic design is een interieurstijl die draait om organische vormen, afgeronde lijnen en een speels maar rustig totaalbeeld. In een modern interieur zorgt deze stijl voor meer zachtheid in een vaak strakke basis. Het contrast tussen rechte lijnen en vloeiende vormen maakt de ruimte interessanter en minder voorspelbaar, zonder dat het zijn moderne karakter verliest.
 
 ## Hoe neotenic design een modern interieur beïnvloedt
@@ -34,8 +32,6 @@ Belangrijke kenmerken zijn:
 Door deze elementen samen te gebruiken ontstaat een [interieur](https://terneuzenkrant.nl/blokker-terneuzen/) dat rustiger en visueel zachter aanvoelt, zonder zijn moderne basis te verliezen.
 
 Bij het toepassen van **Neotenic design intieur tips** draait het vooral om het stap voor stap opbouwen van balans tussen vorm en rust in een ruimte.
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-8-1024x683.png)
 
 ## Neotenic design toepassen in een modern interieur: praktische aanpak
 

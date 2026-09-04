@@ -11,8 +11,6 @@ Wie een zorginstelling runt heeft vandaag de dag een zware taak. Vaak staan er m
 
 Redactie TerneuzenKrant7 juni 2026
 
-![Personeelstekorten in de zorg voorlopig niet van de baan](https://terneuzenkrant.nl/wp-content/uploads/2026/06/featured-1.jpg)
-
 Wie een zorginstelling runt heeft vandaag de dag een zware taak. Vaak staan er meerdere [vacatures](https://terneuzenkrant.nl/vacatures-terneuzen/) open en de kans dat die op korte termijn vervuld kunnen worden is niet heel groot. De vijver met beschikbaar zorgpersoneel is al niet heel vol, en er wordt door heel wat concurrenten in gevist. Er worden verwoede pogingen gedaan om jongeren te interesseren voor een baan in de zorg, maar dat heeft er nog niet toe geleid dat er voldoende personeel beschikbaar is. Dit zal zeer waarschijnlijk ook de komende jaren niet veranderen.
 
 ## Hoe vind je die ene ervaren medewerker?

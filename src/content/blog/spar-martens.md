@@ -11,10 +11,6 @@ SPAR Martens is een vertrouwde buurtwinkel gelegen aan Kerkplein 1 in Sluiskil. 
 
 Redactie TerneuzenKrant13 juli 2024
 
-![SPAR Martens Sluiskil | Kerkplein 1](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154351.png)
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154351.png)
-
 SPAR Martens is een vertrouwde buurtwinkel gelegen aan Kerkplein 1 in Sluiskil. Als onderdeel van de SPAR-keten, biedt deze winkel een breed scala aan dagelijkse boodschappen en handige producten. Of u nu op zoek bent naar verse producten, huishoudelijke artikelen of speciale diensten zoals batterijen- en glazenflesrecycling, SPAR Martens heeft het allemaal.
 
 ## Producten en aanbiedingen bij SPAR Martens Sluiskil

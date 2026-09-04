@@ -11,10 +11,6 @@ Hubo Bouwmarkt Westdorpe is een toonaangevende doe-het-zelf winkel gelegen aan L
 
 Redactie TerneuzenKrant13 juli 2024
 
-![Hubo bouwmarkt Westdorpe | Lindenlaan 29](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154546.png)
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2024/07/Screenshot-2024-07-13-154546.png)
-
 Hubo Bouwmarkt Westdorpe is een toonaangevende doe-het-zelf winkel gelegen aan Lindenlaan 29 in Westdorpe. Met een breed assortiment aan bouwmaterialen, gereedschappen en doe-het-zelf producten, biedt Hubo alles wat u nodig heeft voor uw bouw- en renovatieprojecten. Daarnaast biedt Hubo Westdorpe handige diensten zoals reparaties, batterij- en lampenrecycling.
 
 ## Producten en diensten bij Hubo bouwmarkt Westdorpe

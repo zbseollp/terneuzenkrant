@@ -11,8 +11,6 @@ Gelegen aan de oevers van de Westerschelde ligt Terneuzen, een stad met een rijk
 
 Redactie TerneuzenKrant24 juni 2026
 
-![De verborgen verhalen van Terneuzen: een reis door de tijd](https://terneuzenkrant.nl/wp-content/uploads/2026/06/featured-3.jpg)
-
 Gelegen aan de oevers van de Westerschelde ligt Terneuzen, een stad met een rijke en dynamische geschiedenis. Hoewel veel mensen de stad tegenwoordig vooral kennen als een belangrijk industrieel en maritiem centrum, herbergt de grond onder de moderne gebouwen eeuwenoude verhalen. Van een kleine, strategische vesting tijdens de Tachtigjarige Oorlog tot de transformatie naar de op twee na grootste havenstad van Nederland. De geschiedenis van Terneuzen is een fascinerend epos van strijd tegen het water, strategische keuzes en economische bloei die de stad haar unieke karakter hebben gegeven.
 
 ## Van strategische vesting tot maritiem knooppunt

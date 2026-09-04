@@ -11,8 +11,6 @@ Wie vandaag de dag in een fabriek werkt, heeft een heel andere baan dan iemand d
 
 Redactie TerneuzenKrant3 juni 2026
 
-![Wat verandert er in de industrie nu AI steeds belangrijker wordt?](https://terneuzenkrant.nl/wp-content/uploads/2026/06/featured.jpg)
-
 Wie vandaag de dag in een fabriek werkt, heeft een heel andere baan dan iemand die daar in bijvoorbeeld de jaren 80 werkte. Toen stond het lager personeel nog schouder aan schouder aan de lopende band. Iedereen had zijn eigen taak en samen maakte je uiteindelijk een mooi eindproduct. Dan moest er natuurlijk niets misgaan. Als een collega ziek was, dan was het soms een heel gepuzzel om de stroom aan handelingen toch goed te laten verlopen. Vandaag de dag gaat het er in veel fabrieken heel anders aan toe. Ook hier doet AI steeds meer zijn intrede.
 
 ## Robots nemen het werk over

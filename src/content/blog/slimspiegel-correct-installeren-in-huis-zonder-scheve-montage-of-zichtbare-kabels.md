@@ -11,8 +11,6 @@ Een slimspiegel is een combinatie van spiegel, verlichting en slimme technologie
 
 Redactie TerneuzenKrant25 mei 2026
 
-![Slimspiegel correct installeren in huis zonder scheve montage of zichtbare kabels](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image.png)
-
 Een **slimspiegel** is een combinatie van spiegel, verlichting en slimme technologie die steeds vaker wordt gebruikt in ruimtes zoals de hal, slaapkamer of dressing. Het oogt modern en strak, maar alleen wanneer de installatie goed gebeurt. In de praktijk ontstaan de meeste problemen niet door de spiegel zelf, maar door fouten bij het ophangen. Denk aan scheve montage, slecht weggewerkte kabels of functies die niet goed werken. Met een duidelijke aanpak voorkom je dit soort problemen en zorg je voor een strak resultaat.
 
 ## De juiste voorbereiding voor je begint
@@ -35,8 +33,6 @@ Veel problemen ontstaan doordat deze punten vooraf worden genegeerd, waardoor de
 ### Kleine details die vaak worden vergeten
 
 Wat vaak over het hoofd wordt gezien, is dat [slimme spiegels](https://terneuzenkrant.nl/action-terneuzen/) gevoelige onderdelen hebben zoals LED-verlichting en touchpanelen. Tijdens het ophangen kan te veel druk of een verkeerde hoek al invloed hebben op de werking. Daarom is het verstandig om altijd rustig te werken en bij grotere spiegels iemand te laten helpen.
-
-![](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-2-1024x683.png)
 
 ## Slimspiegel correct installeren stap voor stap
 

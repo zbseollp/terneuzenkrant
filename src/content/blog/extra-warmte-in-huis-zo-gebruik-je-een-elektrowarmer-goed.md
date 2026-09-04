@@ -11,8 +11,6 @@ Een elektrowarmer wordt vaak gebruikt wanneer je in huis snel extra warmte nodig
 
 Redactie TerneuzenKrant26 mei 2026
 
-![Extra warmte in huis: zo gebruik je een elektrowarmer goed](https://terneuzenkrant.nl/wp-content/uploads/2026/05/image-3.png)
-
 Een elektrowarmer wordt vaak gebruikt wanneer je in huis snel extra warmte nodig hebt, bijvoorbeeld in een slaapkamer, werkkamer of zithoek. Het is een praktische oplossing op koude momenten, maar het effect hangt sterk af van hoe je hem gebruikt. Niet alleen het vermogen van het apparaat speelt een rol, maar vooral de plaatsing en de manier waarop je ermee omgaat bepalen hoe comfortabel de ruimte wordt.
 
 ## Hoe een elektrowarmer werkt in huis
