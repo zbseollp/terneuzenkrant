@@ -1,7 +1,7 @@
 ---
 title: "Texaco Axel | Drieschouwen Zuid 2"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2024-07-13"
+date: "2024-07-13"
 slug: "texaco-axel"
 metaDescription: "Nieuws Texaco Axel is een betrouwbaar en gemakkelijk bereikbaar tankstation gelegen aan Drieschouwen Zuid 2 in Zuiddorpe, Nederland. Of u nu onderweg bent"
 ---

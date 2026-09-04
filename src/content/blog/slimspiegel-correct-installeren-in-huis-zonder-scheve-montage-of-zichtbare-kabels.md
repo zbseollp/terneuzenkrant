@@ -1,7 +1,7 @@
 ---
 title: "Slimspiegel correct installeren in huis zonder scheve montage of zichtbare kabels"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2026-05-25"
+date: "2026-05-25"
 slug: "slimspiegel-correct-installeren-in-huis-zonder-scheve-montage-of-zichtbare-kabels"
 metaDescription: "Nieuws Een slimspiegel is een combinatie van spiegel, verlichting en slimme technologie die steeds vaker wordt gebruikt in ruimtes zoals de hal,"
 ---

@@ -1,7 +1,7 @@
 ---
 title: "Leen Bakker Terneuzen | Bastion, Kennedylaan 92"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2024-07-13"
+date: "2024-07-13"
 slug: "leen-bakker"
 metaDescription: "Nieuws Leen Bakker is een toonaangevende woonwinkelketen in Nederland, bekend om zijn uitgebreide assortiment aan meubels, decoratie en woonaccessoires"
 ---

@@ -1,7 +1,7 @@
 ---
 title: "Leger Des Heils meubelhal Terneuzen | Haarmangweg 2a"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2024-07-13"
+date: "2024-07-13"
 slug: "leger-des-heils-meubelhal"
 metaDescription: "Nieuws Leger des Heils Meubelhal Terneuzen is een vertrouwde plek voor het vinden van betaalbare en tweedehands meubels van hoge kwaliteit. Gelegen aan"
 ---

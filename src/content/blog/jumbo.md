@@ -1,7 +1,7 @@
 ---
 title: "Jumbo Terneuzen | Lorentzlaan 2"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2024-07-13"
+date: "2024-07-13"
 slug: "jumbo"
 metaDescription: "Nieuws Jumbo is een van de grootste supermarktketens in Nederland, bekend om zijn uitgebreide assortiment en klantvriendelijke service. Gelegen aan de"
 ---

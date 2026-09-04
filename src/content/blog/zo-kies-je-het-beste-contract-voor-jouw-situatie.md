@@ -1,7 +1,7 @@
 ---
 title: "Zo kies je het beste contract voor jouw situatie"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2026-03-29"
+date: "2026-03-29"
 slug: "zo-kies-je-het-beste-contract-voor-jouw-situatie"
 metaDescription: "Nieuws De energiemarkt verandert voortdurend. Tarieven stijgen en dalen, contractvormen veranderen en nieuwe aanbieders verschijnen regelmatig. Daardoor"
 ---

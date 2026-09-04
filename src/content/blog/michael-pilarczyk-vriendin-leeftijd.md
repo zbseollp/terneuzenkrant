@@ -1,7 +1,7 @@
 ---
 title: "Michael Pilarczyk vriendin leeftijd: alles over zijn partner Cindy Koeman"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2025-10-29"
+date: "2025-10-29"
 slug: "michael-pilarczyk-vriendin-leeftijd"
 metaDescription: "Nieuws Wie is de vriendin van Michael Pilarczyk en wat weten we over haar leeftijd? In dit artikel ontdek je alles over zijn partner Cindy Koeman, hun"
 ---

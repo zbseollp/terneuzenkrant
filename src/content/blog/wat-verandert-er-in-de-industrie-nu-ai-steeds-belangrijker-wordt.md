@@ -1,7 +1,7 @@
 ---
 title: "Wat verandert er in de industrie nu AI steeds belangrijker wordt?"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2026-06-03"
+date: "2026-06-03"
 slug: "wat-verandert-er-in-de-industrie-nu-ai-steeds-belangrijker-wordt"
 metaDescription: "Nieuws Wie vandaag de dag in een fabriek werkt, heeft een heel andere baan dan iemand die daar in bijvoorbeeld de jaren 80 werkte. Toen stond het lager"
 ---

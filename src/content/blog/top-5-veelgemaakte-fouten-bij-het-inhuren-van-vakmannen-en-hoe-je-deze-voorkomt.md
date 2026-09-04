@@ -1,7 +1,7 @@
 ---
 title: "Top 5 veelgemaakte fouten bij het inhuren van vakmannen en hoe je deze voorkomt"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2024-12-07"
+date: "2024-12-07"
 slug: "top-5-veelgemaakte-fouten-bij-het-inhuren-van-vakmannen-en-hoe-je-deze-voorkomt"
 metaDescription: "Blog Het inhuren van een vakman lijkt misschien eenvoudig, maar het kan een uitdaging zijn als je niet goed voorbereid bent. Misschien herken je het wel:"
 ---

@@ -1,7 +1,7 @@
 ---
 title: "Andrey Rublev vriendin: alles over zijn relatie met Anastasija Homutova"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2025-10-29"
+date: "2025-10-29"
 slug: "andrey-rublev-vriendin"
 metaDescription: "Nieuws Wie is de vriendin van Andrey Rublev, en wat weten we over hun relatie? De Russische tennisser behoort al jaren tot de wereldtop, maar over zijn"
 ---

@@ -1,7 +1,7 @@
 ---
 title: "Azerbeidzjaanse keuken in Terneuzen: is het te vinden?"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2024-10-05"
+date: "2024-10-05"
 slug: "azerbeidzjaanse-keuken-in-terneuzen-is-het-te-vinden"
 metaDescription: "Nieuws Terneuzen is een stad die een breed scala aan internationale eetgelegenheden biedt. Van lokale Zeeuwse specialiteiten tot exotische gerechten uit"
 ---

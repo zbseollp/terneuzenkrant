@@ -1,7 +1,7 @@
 ---
 title: "Joya de Boer leeftijd: wat weten we over haar achtergrond en werk?"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2025-10-29"
+date: "2025-10-29"
 slug: "joya-de-boer-leeftijd"
 metaDescription: "Nieuws Wat is de leeftijd van Joya de Boer, en wat weten we over haar achtergrond? De jonge verslaggever is steeds vaker te zien op televisie, maar over"
 ---

@@ -1,7 +1,7 @@
 ---
 title: "Mexicaanse snoepwinkel Terneuzen: waar vind je Mexicaanse lekkernijen?"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2024-10-05"
+date: "2024-10-05"
 slug: "mexicaanse-snoepwinkel-terneuzen-waar-vind-je-mexicaanse-lekkernijen"
 metaDescription: "Nieuws Ben je op zoek naar Mexicaanse snoepjes in Terneuzen? Helaas is er op dit moment geen specifieke Mexicaanse snoepwinkel in Terneuzen te vinden."
 ---

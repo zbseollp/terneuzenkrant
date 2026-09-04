@@ -1,7 +1,7 @@
 ---
 title: "De verborgen verhalen van Terneuzen: een reis door de tijd"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2026-06-24"
+date: "2026-06-24"
 slug: "de-verborgen-verhalen-van-terneuzen-een-reis-door-de-tijd"
 metaDescription: "Nieuws Gelegen aan de oevers van de Westerschelde ligt Terneuzen, een stad met een rijke en dynamische geschiedenis. Hoewel veel mensen de stad"
 ---

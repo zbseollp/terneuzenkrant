@@ -1,7 +1,7 @@
 ---
 title: "Hoe UniPharma innoveert met robots, data en slimme processen"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2026-06-13"
+date: "2026-06-13"
 slug: "hoe-unipharma-innoveert-met-robots-data-en-slimme-processen"
 metaDescription: "Nieuws De gezondheidsmarkt is volop in beweging. Consumenten bestellen vaker online, retailers verwachten snelle leveringen en het assortiment aan"
 ---

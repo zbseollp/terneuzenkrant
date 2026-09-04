@@ -1,7 +1,7 @@
 ---
 title: "Extra warmte in huis: zo gebruik je een elektrowarmer goed"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2026-05-26"
+date: "2026-05-26"
 slug: "extra-warmte-in-huis-zo-gebruik-je-een-elektrowarmer-goed"
 metaDescription: "Nieuws Een elektrowarmer wordt vaak gebruikt wanneer je in huis snel extra warmte nodig hebt, bijvoorbeeld in een slaapkamer, werkkamer of zithoek. Het is"
 ---

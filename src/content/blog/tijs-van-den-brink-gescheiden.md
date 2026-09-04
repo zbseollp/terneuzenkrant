@@ -1,7 +1,7 @@
 ---
 title: "Tijs van den Brink gescheiden: wat weten we over zijn relatie en gezin?"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2025-10-29"
+date: "2025-10-29"
 slug: "tijs-van-den-brink-gescheiden"
 metaDescription: "Nieuws De vraag of Tijs van den Brink gescheiden is, duikt regelmatig op. De EO-presentator is al jarenlang een bekend gezicht op de Nederlandse"
 ---

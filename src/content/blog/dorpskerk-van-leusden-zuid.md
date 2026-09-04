@@ -1,7 +1,7 @@
 ---
 title: "Dorpskerk van Leusden-Zuid: een historisch en cultureel monument"
-pubDate: 2024-01-01
-date: "2024-01-01"
+pubDate: "2025-10-24"
+date: "2025-10-24"
 slug: "dorpskerk-van-leusden-zuid"
 metaDescription: "Blog Dorpskerk van Leusden-Zuid: een historisch en cultureel monument De Dorpskerk van Leusden-Zuid, gelegen aan de Dodeweg, is een markant en historisch"
 ---
