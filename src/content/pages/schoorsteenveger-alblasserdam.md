@@ -4,7 +4,6 @@ metaTitle: "Schoorsteenveger Terneuzen | Zie schoorsteenvegers in Terneuzen"
 slug: "schoorsteenveger-terneuzen"
 metaDescription: "Schoorsteenvegers in Terneuzen en omgeving. Opzoek naar een schoorsteenveger in Terneuzen? Bekijk ze allemaal op onze website."
 ---
-
 ## Schoorsteenveger Terneuzen
 
 Heb je een schoorsteenveger uit Terneuzen of omgeving nodig? We hebben alle schoorsteenvegers uit de buurt voor je op een rijtje gezet. Je kunt een offerte aanvragen en zo de verschillende schoorsteenvegers met elkaar vergelijken qua prijs.

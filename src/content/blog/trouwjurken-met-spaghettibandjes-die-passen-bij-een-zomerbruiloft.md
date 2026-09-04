@@ -1,8 +1,10 @@
 ---
 title: "Trouwjurken met spaghettibandjes die passen bij een zomerbruiloft"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "trouwjurken-met-spaghettibandjes-die-passen-bij-een-zomerbruiloft"
+metaDescription: "Nieuws Wie in Terneuzen of elders in Zeeuws-Vlaanderen een bruiloft plant, merkt al snel dat locatie en seizoen veel invloed hebben op de keuze van de"
 ---
-
 Nieuws
 
 Wie in Terneuzen of elders in Zeeuws-Vlaanderen een bruiloft plant, merkt al snel dat locatie en seizoen veel invloed hebben op de keuze van de trouwjurk. Een ceremonie aan het water, een feest in een

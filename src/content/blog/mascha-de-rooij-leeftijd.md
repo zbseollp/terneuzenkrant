@@ -1,8 +1,10 @@
 ---
 title: "Mascha de Rooij leeftijd: alles over haar carrière en achtergrond"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "mascha-de-rooij-leeftijd"
+metaDescription: "Nieuws Wat is de leeftijd van Mascha de Rooij, en hoe heeft zij haar plek veroverd op de Nederlandse televisie? De presentatrice van Omroep MAX is"
 ---
-
 Nieuws
 
 Wat is de leeftijd van Mascha de Rooij, en hoe heeft zij haar plek veroverd op de Nederlandse televisie? De presentatrice van Omroep MAX is inmiddels een vertrouwd gezicht op het scherm. In dit artike

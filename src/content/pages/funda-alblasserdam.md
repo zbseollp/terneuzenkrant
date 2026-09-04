@@ -4,7 +4,6 @@ metaTitle: "Funda Terneuzen | woningen te koop in Terneuzen"
 slug: "funda-terneuzen"
 metaDescription: "Koop woningen online op Funda Terneuzen. Nieuwbouwhuizen te koop in Terneuzen, huurhuizen en appartementen in Terneuzen."
 ---
-
 ## Funda Terneuzen
 
 Welkom op de Funda Terneuzen pagina. Ben je op zoek naar een nieuwe woning of appartement in Terneuzen, bekijk dan het Funda overzicht. Er zit vast en zeker een mooi huis voor je bij in Terneuzen.

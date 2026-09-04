@@ -1,8 +1,10 @@
 ---
 title: "Een nieuw gazon aanleggen, het beste moment en de juiste aanpak"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "een-nieuw-gazon-aanleggen-het-beste-moment-en-de-juiste-aanpak"
+metaDescription: "Nieuws Een gazon aanleggen lijkt simpel. Grond plat, zoden erop, klaar. In de praktijk zit het verschil tussen een veld dat jarenlang mooi blijft en"
 ---
-
 Nieuws
 
 Een gazon aanleggen lijkt simpel. Grond plat, zoden erop, klaar. In de praktijk zit het verschil tussen een veld dat jarenlang mooi blijft en eentje dat na een seizoen vol kale plekken zit, vooral in

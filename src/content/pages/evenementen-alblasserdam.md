@@ -4,7 +4,6 @@ metaTitle: "Evenementen Terneuzen | terneuzenkrant.nl"
 slug: "evenementen-terneuzen"
 metaDescription: "Bekijk de evenementenagenda van Terneuzen. Er worden heel vaak leuke evenementen georganiseerd in Terneuzen, voor alle leeftijden."
 ---
-
 ## Evenementenagenda van Terneuzen
 
 Er worden heel vaak leuke evenementen georganiseerd in Terneuzen. Evenementen in diverse genres en voor alle leeftijden. Er zal dus sowieso ook een leuke activiteit voor jou tussen zitten om aan deel te nemen of te bezoeken.

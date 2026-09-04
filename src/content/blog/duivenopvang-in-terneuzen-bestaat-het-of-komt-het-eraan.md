@@ -1,8 +1,10 @@
 ---
 title: "Duivenopvang in Terneuzen: Bestaat het of komt het eraan?"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "duivenopvang-in-terneuzen-bestaat-het-of-komt-het-eraan"
+metaDescription: "Nieuws Veel mensen die te maken krijgen met gewonde of verdwaalde duiven vragen zich af of er een specifieke duivenopvang in Terneuzen bestaat. Duiven"
 ---
-
 Nieuws
 
 Veel mensen die te maken krijgen met gewonde of verdwaalde duiven vragen zich af of er een specifieke duivenopvang in Terneuzen bestaat. Duiven zijn overal in Nederland aanwezig, en het komt regelmati

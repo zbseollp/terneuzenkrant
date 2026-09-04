@@ -4,7 +4,6 @@ metaTitle: "Gebedstijden Terneuzen | Bekijk alle gebedstijden"
 slug: "gebedstijden-terneuzen"
 metaDescription: "Gebedstijden in Terneuzen. Op zoek naar de gebedstijden in Terneuzen? Op onze website bekijk je alle gebedstijden in Terneuzen."
 ---
-
 ## Gebedstijden Terneuzen
 
 Op deze pagina kun je de vijf dagelijkse islamitische gebedstijden bekijken voor de moskee in Terneuzen. Het eerste gebed is voor zonsopgang en het laatste gebed is bij zonsondergang.

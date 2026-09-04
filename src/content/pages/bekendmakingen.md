@@ -4,7 +4,6 @@ metaTitle: "Bekendmakingen Terneuzen | terneuzenkrant.nl"
 slug: "bekendmakingen"
 metaDescription: "Blijf op de hoogte van aangevraagde of verleende vergunningen in Terneuzen. Alle verbouwingen die momenteel in Terneuzen plaatsvinden op een rij."
 ---
-
 ## Bekendmakingen Terneuzen
 
 Dankzij de bekendmakingenspagina van onze krant blijf jij overal van op de hoogte. De website wordt dagelijks bijgewerkt om informatie zo snel mogelijk te delen. Bekijk alle bekendmakingen in Terneuzen op deze pagina.

@@ -1,8 +1,10 @@
 ---
 title: "Woonkamer zonder banken trend: zo richt je een zithoek flexibel in"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "woonkamer-zonder-banken-trend-zo-richt-je-een-zithoek-flexibel-in"
+metaDescription: "Nieuws De woonkamer zonder banken trend draait om het loslaten van de traditionele vaste bankopstelling en het creëren van een flexibele leefruimte. In"
 ---
-
 Nieuws
 
 De woonkamer zonder banken trend draait om het loslaten van de traditionele vaste bankopstelling en het creëren van een flexibele leefruimte. In plaats van één grote zitplek wordt de ruimte opgebouwd

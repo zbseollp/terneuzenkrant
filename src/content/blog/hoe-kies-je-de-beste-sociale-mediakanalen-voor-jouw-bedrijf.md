@@ -1,8 +1,10 @@
 ---
 title: "Hoe kies je de beste sociale mediakanalen voor jouw bedrijf?"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "hoe-kies-je-de-beste-sociale-mediakanalen-voor-jouw-bedrijf"
+metaDescription: "Blog Een sterke aanwezigheid op sociale media essentieel voor het succes van elk bedrijf. Het kiezen van de juiste sociale mediaplatforms kan echter een"
 ---
-
 Blog
 
 Een sterke aanwezigheid op sociale media essentieel voor het succes van elk bedrijf. Het kiezen van de juiste sociale mediaplatforms kan echter een uitdaging zijn, gezien het grote aantal beschikbare

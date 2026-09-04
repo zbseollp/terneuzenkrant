@@ -1,8 +1,10 @@
 ---
 title: "Rico Verhoeven leeftijd: alles over zijn carrière en privéleven"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "rico-verhoeven-leeftijd"
+metaDescription: "Nieuws Wat is de leeftijd van Rico Verhoeven, en hoe lang is hij al actief als professioneel vechter? De Nederlandse kickbokser staat wereldwijd bekend"
 ---
-
 Nieuws
 
 Wat is de leeftijd van Rico Verhoeven, en hoe lang is hij al actief als professioneel vechter? De Nederlandse kickbokser staat wereldwijd bekend als The King of Kickboxing, maar achter de sportman sch

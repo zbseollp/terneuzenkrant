@@ -1,8 +1,10 @@
 ---
 title: "Ergosofa comfortbank: wat het is en waarom het zo prettig zit"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "ergosofa-comfortbank-wat-het-is-en-waarom-het-zo-prettig-zit"
+metaDescription: "Nieuws Een ergosofa comfortbank wordt steeds vaker gekozen door mensen die niet alleen een mooie bank willen, maar vooral goed en langdurig willen zitten"
 ---
-
 Nieuws
 
 Een ergosofa comfortbank wordt steeds vaker gekozen door mensen die niet alleen een mooie bank willen, maar vooral goed en langdurig willen zitten zonder klachten. In tegenstelling tot een standaard b

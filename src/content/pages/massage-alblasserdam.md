@@ -4,7 +4,6 @@ metaTitle: "Massage Terneuzen | Bekijk alle massagesalons in Terneuzen"
 slug: "massage-terneuzen"
 metaDescription: "Massagesalons in Terneuzen en omgeving. Op zoek naar een massage in Terneuzen? Bekijk alle massagesalons op onze massage pagina."
 ---
-
 ## Massagesalons in Terneuzen
 
 Op zoek naar ontspanning of hulp bij spierspanning? Boek je massage bij een van de massagesalons in Terneuzen. Je kunt genieten van een Thaise massage of een hot stone massage, onder andere bij de diverse salons in de gemeente.

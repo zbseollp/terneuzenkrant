@@ -4,7 +4,6 @@ metaTitle: "Fysio Terneuzen | Bekijk alle fysiotherapeuten uit Terneuzen"
 slug: "fysio-terneuzen"
 metaDescription: "Fysiotherapie in Terneuzen en omgeving. Op zoek naar fysiotherapie in Terneuzen? Bekijk alle fysiotherapeuten op onze fysio pagina."
 ---
-
 ## Fysio Terneuzen
 
 Heb je last van gespannen spieren of pijn in de gewrichten? Dan is het verstandig om een afspraak te maken bij een fysiotherapeut in Terneuzen. Op deze pagina kun je alle verschillende fysiotherapeuten in Terneuzen bekijken. Neem contact op met de fysio om een afspraak te maken en je te laten behandelen.

@@ -4,7 +4,6 @@ metaTitle: "Pedicure Terneuzen | Bekijk alle pedicures in Terneuzen"
 slug: "pedicure-terneuzen"
 metaDescription: "Pedicures in Terneuzen en omgeving. Opzoek naar een pedicure in Terneuzen? Bekijk alle pedicures op onze website."
 ---
-
 ## Pedicure Terneuzen
 
 Laat jij graag je voeten behandelen of heb je een pedicure nodig in Terneuzen vanwege medische klachten aan je voeten? Na een pedicurebehandeling zijn je voeten heerlijk glad en de nagels weer goed verzorgd. Adviseren wij elke 6 weken een pedicurebehandeling als je last hebt van eelt, likdoorns, verdikte nagels of hielkloven.

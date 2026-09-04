@@ -1,8 +1,10 @@
 ---
 title: "Lamyae Aharouay getrouwd: wat weten we over haar privéleven?"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "lamyae-aharouay-getrouwd"
+metaDescription: "Nieuws Is Lamyae Aharouay getrouwd, en wat weten we over haar privéleven? De Nederlandse journalist en presentatrice is een bekende stem in de politieke"
 ---
-
 Nieuws
 
 Is Lamyae Aharouay getrouwd, en wat weten we over haar privéleven? De Nederlandse journalist en presentatrice is een bekende stem in de politieke verslaggeving, maar over haar persoonlijke leven is we

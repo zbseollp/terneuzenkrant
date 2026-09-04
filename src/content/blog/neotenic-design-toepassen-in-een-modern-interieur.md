@@ -1,8 +1,10 @@
 ---
 title: "Neotenic design toepassen in een modern interieur"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "neotenic-design-toepassen-in-een-modern-interieur"
+metaDescription: "Nieuws Neotenic design is een interieurstijl die draait om organische vormen, afgeronde lijnen en een speels maar rustig totaalbeeld. In een modern"
 ---
-
 Nieuws
 
 Neotenic design is een interieurstijl die draait om organische vormen, afgeronde lijnen en een speels maar rustig totaalbeeld. In een modern interieur zorgt deze stijl voor meer zachtheid in een vaak

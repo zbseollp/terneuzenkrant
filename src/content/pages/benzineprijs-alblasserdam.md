@@ -4,7 +4,6 @@ metaTitle: "Benzineprijs Terneuzen | Vind de goedkoopste benzine in Terneuzen"
 slug: "benzineprijs-terneuzen"
 metaDescription: "Op zoek naar de goedkoopste benzine en dieselprijzen in Terneuzen? Bekijk de beste brandstofprijzen in Terneuzen bij ons"
 ---
-
 ## Benzineprijs Terneuzen
 
 Welkom op de benzineprijs pagina van de Terneuzenkrant. Op deze pagina kun je de goedkoopste benzine- en brandstofprijzen in Terneuzen vinden. Met de stijgende benzineprijs is het prettig om de goedkoopste benzine en diesel in Terneuzen te vinden.

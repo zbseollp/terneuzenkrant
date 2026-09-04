@@ -1,8 +1,10 @@
 ---
 title: "Alistair Overeem vriendin: alles over zijn relatie met Sophie"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "alistair-overeem-vriendin"
+metaDescription: "Nieuws Wie is de vriendin van Alistair Overeem, en wat weten we over hun relatie? De Nederlandse vechtsportlegende deelt niet vaak details over zijn"
 ---
-
 Nieuws
 
 Wie is de vriendin van Alistair Overeem, en wat weten we over hun relatie? De Nederlandse vechtsportlegende deelt niet vaak details over zijn privéleven, maar inmiddels is bekend dat hij samen is met

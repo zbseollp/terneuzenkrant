@@ -4,7 +4,6 @@ metaTitle: "Wandelen Terneuzen | Bekijk alle wandelroutes in Terneuzen"
 slug: "wandelen-terneuzen"
 metaDescription: "Wandelen in Terneuzen en omgeving. Op zoek naar een wandelroute in Terneuzen? Bekijk alle wandelingen op onze wandel pagina."
 ---
-
 ## Wandelen Terneuzen
 
 Ben je in Terneuzen en heb je zin om te gaan wandelen? Wellicht door het centrum van Terneuzen om de pracht en praal te bekijken. Ga je liever de natuur in? Kies dan voor een wandeling buiten Terneuzen. De locatie biedt zowel korte wandelingen als uitgebreide dagtochten door de gemeente en omliggende regio's, geschikt voor elk ervaringsniveau.

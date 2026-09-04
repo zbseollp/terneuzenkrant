@@ -1,8 +1,10 @@
 ---
 title: "SPAR Martens Sluiskil | Kerkplein 1"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "spar-martens"
+metaDescription: "Nieuws SPAR Martens is een vertrouwde buurtwinkel gelegen aan Kerkplein 1 in Sluiskil. Als onderdeel van de SPAR-keten, biedt deze winkel een breed scala"
 ---
-
 Nieuws
 
 SPAR Martens is een vertrouwde buurtwinkel gelegen aan Kerkplein 1 in Sluiskil. Als onderdeel van de SPAR-keten, biedt deze winkel een breed scala aan dagelijkse boodschappen en handige producten. Of

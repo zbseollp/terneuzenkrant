@@ -1,8 +1,10 @@
 ---
 title: "Personeelstekorten in de zorg voorlopig niet van de baan"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "personeelstekorten-in-de-zorg-voorlopig-niet-van-de-baan"
+metaDescription: "Nieuws Wie een zorginstelling runt heeft vandaag de dag een zware taak. Vaak staan er meerdere vacatures open en de kans dat die op korte termijn vervuld"
 ---
-
 Nieuws
 
 Wie een zorginstelling runt heeft vandaag de dag een zware taak. Vaak staan er meerdere vacatures open en de kans dat die op korte termijn vervuld kunnen worden is niet heel groot. De vijver met besch

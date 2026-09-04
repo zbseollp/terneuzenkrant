@@ -4,7 +4,6 @@ metaTitle: "Snackbar Terneuzen | Bekijk alle snackbars in Terneuzen"
 slug: "snackbar-terneuzen"
 metaDescription: "Snackbar in Terneuzen en omgeving. Op zoek naar een snackbar in Terneuzen? Bekijk alle snackbars hier"
 ---
-
 ## Snackbar Terneuzen
 
 Doe maar twee porties friet met ketchup, een kroket en een vegetarische frikandel. Heb jij ook zin om je eten af te halen bij de snackbar of cafetaria en lekker thuis op de bank te genieten van je snacks en een film te kijken?

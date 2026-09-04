@@ -4,7 +4,6 @@ metaTitle: "Vacatures Terneuzen | Bekijk alle banen"
 slug: "vacatures-terneuzen"
 metaDescription: "Vacatures in Terneuzen en omgeving. Op zoek naar een baan in Terneuzen? Bekijk alle banen op onze vacaturepagina."
 ---
-
 ## Vacatures Terneuzen
 
 Is het tijd voor een nieuwe uitdaging of ben je net verhuisd naar Terneuzen en zoek je naar een nieuwe baan? Ben je student en op zoek naar een vakantiebaantje of zoek je tijdelijk werk? Bekijk alle vacatures in de gemeente Terneuzen op onze vacaturepagina. Wat je ook zoekt, fulltime of parttime, je vindt alle vacatures in de terneuzenkrant.

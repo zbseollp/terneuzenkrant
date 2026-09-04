@@ -1,8 +1,10 @@
 ---
 title: "Zo kies je het beste contract voor jouw situatie"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "zo-kies-je-het-beste-contract-voor-jouw-situatie"
+metaDescription: "Nieuws De energiemarkt verandert voortdurend. Tarieven stijgen en dalen, contractvormen veranderen en nieuwe aanbieders verschijnen regelmatig. Daardoor"
 ---
-
 Nieuws
 
 De energiemarkt verandert voortdurend. Tarieven stijgen en dalen, contractvormen veranderen en nieuwe aanbieders verschijnen regelmatig. Daardoor kan het lonen om af en toe opnieuw naar je energiecont

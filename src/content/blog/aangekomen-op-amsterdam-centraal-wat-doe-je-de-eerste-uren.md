@@ -1,8 +1,10 @@
 ---
 title: "Aangekomen op Amsterdam Centraal: wat doe je de eerste uren?"
 pubDate: 2024-01-01
+date: "2024-01-01"
+slug: "aangekomen-op-amsterdam-centraal-wat-doe-je-de-eerste-uren"
+metaDescription: "Nieuws Wie de trein uit neemt naar Amsterdam, stapt uit op een van de drukste stations van Nederland. Amsterdam Centraal ligt op het water, precies tussen"
 ---
-
 Nieuws
 
 Wie de trein uit neemt naar Amsterdam, stapt uit op een van de drukste stations van Nederland. Amsterdam Centraal ligt op het water, precies tussen het centrum en het IJ. Vanaf de uitgang aan de voorz
